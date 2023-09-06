@@ -1,4 +1,4 @@
-# <span style= "color:darkgreen">Sarah E. Ulrich</span>:earth_americas: :ghost: :snail:
+# <span style= "color:darkgreen">Sarah E. Ulrich</span>🌎👻 🐌
 
 #### <span style= "color:green">Graduate Assistant | Appalachian State University Department of Geography & Planning</span>
 ulrichse@appstate.edu
@@ -36,7 +36,7 @@ Lab Instructor for GHY 1012: Global Change of the Biosphere | *Fall 2022*
 
 Community Research Intern at Inter-Faith Food Shuttle | *April 2020-January 2021*
 
-## <span style="color:#FF0066">Awards</span> :fire:
+## <span style="color:#FF0066">Awards</span> 🔥
 - **Ulrich, S.E.**, Sugg, M.M., Ryan, S.C., and Runkle, J.D. “Mapping High-Risk Clusters and Identifying Place-Based Risk Factors of Mental Health Burden in Pregnancy” *Social Science and Medicine-Mental Health* (Revise and  Resubmit) 
 - ****Ulrich, S.E.****, Sugg, M.M., Desjardins, M.R., and Runkle, J.D. “Clustering of perinatal mental health conditions during the COVID-19 pandemic” (submitted to Health & Place)
 - *GeoHealth Intern*. National Science Foundation, Directorate of Geosciences. $54,965 (2023-2024)
